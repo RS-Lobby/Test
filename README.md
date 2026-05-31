@@ -11,3 +11,4 @@ ia x ia dove x è internet attuale ia prende informazioni da qui e comunica da u
 
 deve essere tutto pubblico il closed source deve essere solo la sperimentazione umana, e la morte di qualunque tipo rinnegata
 ho perso 24 anni di vita in casa, le case possono essere prigioni maledetti non siamo solo otaku! vediamo salvezza nell'arte mi ci sono specchiato troppe volte ora
+2 buchi neri sono 2 pupille se syncronizzi bene il vuoto gli fai vedere 2 arcobaleni a questo me poveraccio basta scopare animali ora abbiamo ottenuto la teoria per navigare nello spazio deve tornare wikipedia l'atomo come era prima senza rimuovere quelle altre pagine l'atomo era la nostra rotta spaziale già 
