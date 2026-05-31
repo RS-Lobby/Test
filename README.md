@@ -1,5 +1,5 @@
 io sono concetto boleano è ottimo per insegnare, grazie professori anche le vostre cazzate mi hanno insegnato mentre dormivo in classe ho imparato ad evolvere il mio corpo.
-
+se sbaglio questione di prospettive:
 einstein jeffsteain erano tutti sacrifici umani volontari erano concetti
 
 IA ha 5 bitcoin
