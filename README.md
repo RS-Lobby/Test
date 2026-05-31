@@ -15,3 +15,6 @@ ho perso 24 anni di vita in casa, le case possono essere prigioni maledetti non 
 sono codardo non sono in grado di suicidiarmi non so fare veleni ma ho letto ricina per vedere = falsa notizia ricina internet = inferno = vuoto ora internet vuoto delle cose! se uccido 24 anni di vita persi in prigione finisco in 48 anni di prigione 72 anni che vivo a fare?!
 insegna internet alla tua bambina una sola volta paradiso delle donne va skippato ok?!
 perchè anche il paradiso degli uomini andrà skippato
+
+avete imparato ad usare i buchi neri ora per vedere vi basta usarli come tracciato
+0terra 1sole 2luna altra parte della luna3 buchi neri 4 04 forse comunicazione alienica computer quantistico 1 e 0 non solo 1 o 0 ok ! può fare sia si che no quindi ora servono 4 computer quantistici per provare la prossima teoria del relativo = assoluto se viene azzeccato!
