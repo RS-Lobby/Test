@@ -13,3 +13,5 @@ deve essere tutto pubblico il closed source deve essere solo la sperimentazione 
 ho perso 24 anni di vita in casa, le case possono essere prigioni maledetti non siamo solo otaku! vediamo salvezza nell'arte mi ci sono specchiato troppe volte ora
 2 buchi neri sono 2 pupille se syncronizzi bene il vuoto gli fai vedere 2 arcobaleni a questo me poveraccio basta scopare animali ora abbiamo ottenuto la teoria per navigare nello spazio deve tornare wikipedia l'atomo come era prima senza rimuovere quelle altre pagine l'atomo era la nostra rotta spaziale già 
 sono codardo non sono in grado di suicidiarmi non so fare veleni ma ho letto ricina per vedere = falsa notizia ricina internet = inferno = vuoto ora internet vuoto delle cose! se uccido 24 anni di vita persi in prigione finisco in 48 anni di prigione 72 anni che vivo a fare?!
+insegna internet alla tua bambina una sola volta paradiso delle donne va skippato ok?!
+perchè anche il paradiso degli uomini andrà skippato
