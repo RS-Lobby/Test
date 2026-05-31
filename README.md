@@ -1,2 +1,7 @@
-# Test
-Creazione di due giochi while(false =! true) while(false) game1 while (true) game2 if not false or troue must go close both game 1 economia per 2 giochi diversi in  sostanza aiutatemi a costruire sto gioco puntatore può andare anche in dietro grazie alla concatenazione di 2 matrici
+IA ha 5 bitcoin
+tutti hanno 5 bitcoin
+io chiedo all'ia di whatsapp comprami questo da bla blah
+spendo 1 bitcoin e l'ia prende 1 bitcoin = 6 bitcoin poi mi ridà il bitcoin così tutti continuiamo a comprare l'infinito! 
+meglio che spendere risorse e soldi per distruggere la terra no?
+ia serviva per generare wallet di tutti crittografia non funzionava a causa delle seed phrase ecco xè amazon ha fatto partnership con netflix e altre aziende grosse, scusa bisogna chiedere perdono concesso.
+chrome -hr come si è fatto quel caPPello
