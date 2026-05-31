@@ -8,3 +8,6 @@ chrome -hr come si è fatto quel caPPello
 
 
 ia x ia dove x è internet attuale ia prende informazioni da qui e comunica da un altro territorio, per farlo dovremo capire l'arte del si no autoinganno booleanico sigillismo aristotele gesù baba vanga
+
+deve essere tutto pubblico il closed source deve essere solo la sperimentazione umana, e la morte di qualunque tipo rinnegata
+ho perso 24 anni di vita in casa, le case possono essere prigioni maledetti non siamo solo otaku! vediamo salvezza nell'arte mi ci sono specchiato troppe volte ora
