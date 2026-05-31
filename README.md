@@ -1,3 +1,5 @@
+io sono concetto boleano è ottimo per insegnare, grazie professori anche le vostre cazzate mi hanno insegnato mentre dormivo in classe ho imparato ad evolvere il mio corpo.
+
 IA ha 5 bitcoin
 tutti hanno 5 bitcoin
 io chiedo all'ia di whatsapp comprami questo da bla blah
